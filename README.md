@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on basic web dev stuff
 - 📫 How to reach me on discord chibibellpepper 
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: sometimes lazy to talk 
+- ⚡ Fun fact:  coffee and matcha is my life elixir. 
 
 <!---
 bellpepperblob/bellpepperblob is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
